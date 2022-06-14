@@ -5,4 +5,4 @@
 > [Рікрол](https://beno.uk/random/cute_cat/) 
 
 
-<img src="https://i.imgflip.com/64rgt9.jpg" width="500" height="40" />
+<img src="https://i.imgflip.com/64rgt9.jpg" width="500" height="60" />
