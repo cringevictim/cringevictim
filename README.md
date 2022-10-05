@@ -1,4 +1,4 @@
-### Не надо дядя
+### не треба дядя
 
 > [Корисне посилання](https://www.youtube.com/watch?v=dQw4w9WgXcQ) 
 
