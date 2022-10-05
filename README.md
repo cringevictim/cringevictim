@@ -6,4 +6,3 @@
 
 
 <img src="https://i.imgflip.com/64rgt9.jpg" width="500" height="75" />
-[comment]: <> <img src="https://i.imgur.com/m9iVhzq.jpeg"  width="903" height="213"/>
